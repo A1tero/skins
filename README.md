@@ -1,4 +1,4 @@
-# *Altero skins*
+# ⚝*Altero skins*⚝
 
 # [!!!!!!!!!! - ⚝ Lady BERNKASTEL ⚝ BEBROVIK](https://disk.yandex.ru/d/hgbnYEsrI6ZZFw)
 ![](https://i.postimg.cc/vHH6vN2P/screenshot057.jpg)
