@@ -2,7 +2,7 @@
 
 # [!!!!!!!!!! - ⚝ Lady BERNKASTEL ⚝ BEBROVIK](https://disk.yandex.ru/d/hgbnYEsrI6ZZFw)
 
-![](https://postimg.cc/t7wTq2jP)
+![]([https://postimg.cc/t7wTq2jP](https://i.postimg.cc/vHH6vN2P/screenshot057.jpg)
 
 #[Altero_ DT(bc](https://disk.yandex.ru/d/GNuLzdGzujhoOA)
 ![](https://disk.yandex.ru/i/mSoLBB4d8xA59g)
