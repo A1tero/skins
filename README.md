@@ -1,5 +1,8 @@
 # _⚝*Altero skins*⚝_
 
+# [BubbleSkin20-10-09](https://disk.yandex.ru/d/r1uaeu88WOR4gg)
+![](https://i.postimg.cc/Sx1pk9dL/screenshot077.jpg)
+
 # [!!!!!!!!!! - ⚝ Lady BERNKASTEL ⚝ BEBROVIK](https://disk.yandex.ru/d/hgbnYEsrI6ZZFw)
 ![](https://i.postimg.cc/vHH6vN2P/screenshot057.jpg)
 
