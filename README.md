@@ -1,7 +1,7 @@
 # _⚝*Altero skins*⚝_
 
 # [《CK》 Bacon boi 1.0](https://disk.yandex.ru/d/hjfjiNo99COqMA)
-![](https://i.postimg.cc/c4YrpzLy/be60f582d0c541b13603d97cdfef40e6.webp)
+![be60f582d0c541b13603d97cdfef40e6.webp](https://i.postimg.cc/c4YrpzLy/be60f582d0c541b13603d97cdfef40e6.webp)](https://postimg.cc/WhNNrXZX)
 
 # [BubbleSkin20-10-09](https://disk.yandex.ru/d/r1uaeu88WOR4gg)
 ![](https://i.postimg.cc/Sx1pk9dL/screenshot077.jpg)
