@@ -1,5 +1,8 @@
 # _⚝*Altero skins*⚝_
 
+# [Aristia(Edit)](https://disk.yandex.ru/d/bF9UgjT51WruAg)
+![](https://i.postimg.cc/fbt9VLZz/browser-pw29-TM3-X1-T.png)
+
 # [《CK》 Bacon boi 1.0](https://disk.yandex.ru/d/hjfjiNo99COqMA)
 ![](https://i.postimg.cc/Qd6trZ1t/screenshot079.jpg)
 
