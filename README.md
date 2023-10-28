@@ -1,5 +1,8 @@
 # _⚝*Altero skins*⚝_
 
+# [Altero_ NM4(tma)](https://disk.yandex.ru/d/6V99ng5Sxy1HIQ)
+![](https://i.postimg.cc/Nf9kPDLt/screenshot091.jpg)
+
 # [Aristia(Edit)](https://disk.yandex.ru/d/bF9UgjT51WruAg)
 ![](https://i.postimg.cc/fbt9VLZz/browser-pw29-TM3-X1-T.png)
 
