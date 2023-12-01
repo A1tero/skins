@@ -1,6 +1,6 @@
 # _⚝*Altero skins*⚝_
 
-#[tekkito2](https://drive.google.com/drive/folders/1okEiPmtPsjSXAO6rESPFEacuoD1is8bQ)
+# [tekkito2](https://drive.google.com/drive/folders/1okEiPmtPsjSXAO6rESPFEacuoD1is8bQ)
 ![](https://i.postimg.cc/wjFh9WbG/25cddae834221383e78e9a433b2e4f8a.webp)
 
 # [Altero_ NM4(tma)](https://disk.yandex.ru/d/6V99ng5Sxy1HIQ)
