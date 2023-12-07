@@ -1,5 +1,11 @@
 # _⚝*Altero skins*⚝_
 
+# [malizs_azerino_edit](https://www.google.com/url?q=https%3A%2F%2Fbit.ly%2F3T3GLb6&sa=D&sntz=1&usg=AOvVaw2vmrWeUVbwTSQ7-mavxVWE)
+![](https://i.postimg.cc/J0jVP2qC/screenshot117.jpg)
+
+# [rekty edit](https://www.google.com/url?q=https%3A%2F%2Fbit.ly%2F3N4bkcF&sa=D&sntz=1&usg=AOvVaw3haYAuWicXwpbcgU9vEzmn)
+![](https://i.postimg.cc/Hxq10gbt/screenshot118.jpg)
+
 # [tekkito2](https://drive.google.com/drive/folders/1okEiPmtPsjSXAO6rESPFEacuoD1is8bQ)
 ![](https://i.postimg.cc/wjFh9WbG/25cddae834221383e78e9a433b2e4f8a.webp)
 
